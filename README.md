@@ -1,6 +1,5 @@
-### Hi! 👋 I'm Syukur Sidiq.
-
-Hello! I'm Syukur Sidiq Nur Alam, an IT student with a deep passion for expanding my knowledge and skills. I am highly motivated to stay at the forefront of the ever-evolving IT industry.
+### Hi! 👋 I'm Syukur,
+an IT student with a deep passion for expanding my knowledge and skills. I am highly motivated to stay at the forefront of the ever-evolving IT industry.
 
 - 🙍‍♂️ connect with me on linkedin : www.linkedin.com/in/syukur-sidiq-nur-alam-7454a7250
 - 📫 How to reach me: syukursidiqnuralam@gmail.com
