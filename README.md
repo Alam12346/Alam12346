@@ -1,6 +1,6 @@
 ### Hi! 👋 I'am Syukur,
 
-A 5th semester IT student at Bandung University of Technology. 
+A 5th semester IT student at Bandung University of Technology and Bangkit. 
 
 With a great passion for expanding my knowledge and skills. I am highly motivated to stay ahead of the ever-evolving IT industry, in particular I love learning about frontend.
 
